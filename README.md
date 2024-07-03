@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @44bacate
+- 👀 I’m interested in lua scripting in Roblox and hacking
+- 🌱 I’m currently learning 44bacate hub
+- ⚡ Fun fact: You are gay
